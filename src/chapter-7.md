@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Innovation
-============================================
 
 Managing resistance to innovation is an important aspect of fostering a culture of innovation in the workplace. In this chapter, we will discuss strategies for identifying common sources of resistance to innovation, developing strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset.
 

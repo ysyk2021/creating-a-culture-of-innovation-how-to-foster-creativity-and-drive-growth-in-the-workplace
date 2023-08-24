@@ -1,5 +1,3 @@
-Overview of a Culture of Innovation
-================================================================================
 
 Defining a culture of innovation is essential for fostering creativity and driving growth in the workplace. In this chapter, we will provide an overview of what a culture of innovation is and why it is important.
 

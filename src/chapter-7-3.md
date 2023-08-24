@@ -1,5 +1,3 @@
-Addressing Fear and Uncertainty
-=============================================================================
 
 Fear and uncertainty are common sources of resistance to innovation in the workplace. In this chapter, we will focus on how to address fear and uncertainty to overcome resistance to innovation and foster a more dynamic and innovative workplace.
 

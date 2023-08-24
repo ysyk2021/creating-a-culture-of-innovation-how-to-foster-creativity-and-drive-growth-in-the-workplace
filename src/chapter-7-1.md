@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Innovation
-====================================================================================================
 
 Resistance to innovation can be a significant barrier to creating a culture of innovation in the workplace. In this chapter, we will focus on identifying common sources of resistance to innovation and strategies for overcoming them.
 

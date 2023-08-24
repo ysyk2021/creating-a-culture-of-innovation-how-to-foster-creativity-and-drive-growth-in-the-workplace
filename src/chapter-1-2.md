@@ -1,5 +1,3 @@
-Common Misconceptions About Innovation
-===============================================================
 
 There are many misconceptions about innovation that can hinder organizations from fostering a culture of creativity and growth. In this chapter, we will discuss some common misconceptions about innovation and why they are important to address.
 

@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Innovation
-===============================================
 
 Leveraging technology is essential for promoting innovation in the workplace. In this chapter, we will discuss strategies for identifying and using innovation technologies and resources, enhancing the innovative experience through technology, fostering accessibility and inclusivity, and avoiding information overload.
 

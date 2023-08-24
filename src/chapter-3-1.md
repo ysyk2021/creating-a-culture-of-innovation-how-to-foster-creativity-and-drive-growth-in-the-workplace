@@ -1,5 +1,3 @@
-Techniques for Cultivating an Innovative Mindset
-=============================================================================================
 
 Cultivating an innovative mindset is essential for individuals and organizations that want to create a culture of innovation in the workplace. In this chapter, we will focus on techniques for cultivating an innovative mindset.
 

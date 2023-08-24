@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-========================================================================
 
 Fostering a growth mindset is critical for overcoming resistance to innovation in the workplace. In this chapter, we will focus on how developing a growth mindset can help individuals and organizations overcome resistance to innovation and foster a more dynamic and innovative workplace.
 

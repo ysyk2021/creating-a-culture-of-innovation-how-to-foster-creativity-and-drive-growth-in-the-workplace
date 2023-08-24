@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-========================================================================================
 
 Leveraging technology is critical for fostering innovation in the workplace. However, it is equally important to ensure that technology is accessible and inclusive for all employees. In this chapter, we will discuss strategies for leveraging technology for innovation while fostering accessibility and inclusivity.
 

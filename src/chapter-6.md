@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Innovative Skills
-============================================
 
 Developing your innovative skills is essential for driving growth and success in the workplace. In this chapter, we will discuss strategies for understanding the principles of effective innovation, developing strategies for fostering creativity and driving growth, utilizing feedback and coaching, and fostering continuous learning and improvement.
 

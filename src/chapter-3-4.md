@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Innovation
-=================================================================================================
 
 Developing an innovative mindset is not only about creativity and problem-solving, but also about empathy and compassion. In this chapter, we will focus on the importance of developing empathy and compassion through innovation as a key strategy for fostering a culture of innovation that supports growth, creativity, and success.
 

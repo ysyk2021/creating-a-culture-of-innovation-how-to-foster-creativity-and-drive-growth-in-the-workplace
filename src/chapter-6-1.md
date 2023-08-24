@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Innovation
-==================================================================================================
 
 Understanding the principles of effective innovation is critical for individuals and organizations that want to create a culture of innovation in the workplace. In this chapter, we will focus on how to develop your innovative skills by understanding the principles of effective innovation.
 

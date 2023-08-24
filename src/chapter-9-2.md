@@ -1,5 +1,3 @@
-Using Technology to Enhance Your Innovative Experience
-=======================================================================================================
 
 Using technology to enhance your innovative experience can be a powerful way to promote innovation in the workplace. In this chapter, we will discuss strategies for using technology to generate new ideas, test and refine prototypes, and collaborate with colleagues and stakeholders.
 

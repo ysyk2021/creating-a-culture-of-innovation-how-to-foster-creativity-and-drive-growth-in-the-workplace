@@ -1,5 +1,3 @@
-Identifying Innovation Technologies and Resources
-==================================================================================================
 
 Identifying innovation technologies and resources is an essential first step in leveraging technology for innovation in the workplace. In this chapter, we will discuss strategies for identifying and selecting innovation technologies and resources that can support your organization's innovation goals.
 

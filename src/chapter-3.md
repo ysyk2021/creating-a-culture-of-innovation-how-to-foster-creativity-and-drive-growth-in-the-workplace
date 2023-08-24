@@ -1,5 +1,3 @@
-Chapter 3: Developing an Innovative Mindset
-===========================================
 
 Developing an innovative mindset is essential for fostering creativity and driving growth in the workplace. In this chapter, we will discuss techniques for cultivating an innovative mindset, utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through innovation.
 

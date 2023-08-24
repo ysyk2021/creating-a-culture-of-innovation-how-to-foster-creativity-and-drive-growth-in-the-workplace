@@ -1,5 +1,3 @@
-Providing Training and Professional Development Opportunities
-==========================================================================================================
 
 Providing training and professional development opportunities is essential for creating a culture of innovation in the workplace. In this chapter, we will discuss strategies for providing training and development opportunities that support innovation.
 

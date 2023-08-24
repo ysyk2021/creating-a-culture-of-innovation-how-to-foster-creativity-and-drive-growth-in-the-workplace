@@ -1,5 +1,3 @@
-Chapter 2: Defining a Culture of Innovation
-===========================================
 
 Defining a culture of innovation is an essential first step in fostering creativity and driving growth in the workplace. In this chapter, we will discuss an overview of a culture of innovation, understanding the science behind innovation, and assessing your personal approach to innovation.
 

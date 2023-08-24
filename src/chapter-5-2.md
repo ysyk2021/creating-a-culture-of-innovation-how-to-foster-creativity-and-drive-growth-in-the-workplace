@@ -1,5 +1,3 @@
-Finding Ways to Stimulate Creativity and Drive Growth
-===================================================================================================
 
 Maximizing your innovative skills requires finding ways to stimulate creativity and drive growth in the workplace. In this chapter, we will focus on strategies for finding ways to stimulate creativity and drive growth.
 

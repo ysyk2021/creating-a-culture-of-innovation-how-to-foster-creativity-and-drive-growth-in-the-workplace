@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-=============================================================================
 
 Developing innovative skills is essential for individuals and organizations that want to create a culture of innovation in the workplace. In this chapter, we will focus on utilizing feedback and coaching to develop your innovative skills.
 

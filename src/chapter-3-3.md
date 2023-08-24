@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-===================================================================================
 
 Developing an innovative mindset is critical for fostering creativity and driving growth in the workplace. In this chapter, we will focus on setting realistic goals and objectives as a key strategy for developing an innovative mindset that supports ongoing learning and improvement.
 

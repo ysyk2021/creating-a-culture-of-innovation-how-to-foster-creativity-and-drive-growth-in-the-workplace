@@ -1,5 +1,3 @@
-Encouraging Proactive Innovation Across the Organization
-=====================================================================================================
 
 Creating a culture of innovation requires encouraging proactive innovation across the entire organization. In this chapter, we will discuss strategies for fostering a culture of innovation and empowering all employees to contribute their ideas and perspectives.
 

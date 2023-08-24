@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-=============================================================================
 
 Addressing limiting beliefs is essential for individuals and organizations that want to harness the power of innovation and create a culture of innovation in the workplace. In this chapter, we will focus on how to address limiting beliefs related to innovation.
 

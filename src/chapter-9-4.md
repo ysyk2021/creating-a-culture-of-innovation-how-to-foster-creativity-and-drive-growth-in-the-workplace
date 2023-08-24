@@ -1,5 +1,3 @@
-Avoiding Information Overload
-==============================================================================
 
 Leveraging technology is an essential aspect of fostering innovation in the workplace. However, with the abundance of information available, it can be easy for employees to become overwhelmed and experience information overload. In this chapter, we will discuss strategies for leveraging technology for innovation while avoiding information overload.
 

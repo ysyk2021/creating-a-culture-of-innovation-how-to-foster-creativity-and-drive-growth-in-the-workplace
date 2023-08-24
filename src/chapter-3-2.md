@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-===========================================================================================
 
 Developing an innovative mindset is essential for individuals and organizations that want to create a culture of innovation in the workplace. In this chapter, we will focus on how to utilize positive self-talk and visualization to develop an innovative mindset.
 

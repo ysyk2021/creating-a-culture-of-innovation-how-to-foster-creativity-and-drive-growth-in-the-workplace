@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Innovation
-===========================================================================================
 
 Assessing your personal approach to innovation is an important step in fostering a culture of innovation in the workplace. In this chapter, we will discuss strategies for assessing your personal approach to innovation and how it can contribute to a culture of innovation.
 

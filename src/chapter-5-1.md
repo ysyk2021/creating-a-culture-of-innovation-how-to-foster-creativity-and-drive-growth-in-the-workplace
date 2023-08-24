@@ -1,5 +1,3 @@
-Identifying Opportunities for Innovation in the Workplace
-=======================================================================================================
 
 Identifying opportunities for innovation is an essential skill for individuals and organizations that want to create a culture of innovation in the workplace. In this chapter, we will focus on maximizing your innovative skills by identifying opportunities for innovation in the workplace.
 

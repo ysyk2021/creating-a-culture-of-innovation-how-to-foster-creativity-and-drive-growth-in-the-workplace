@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-=============================================================================================
 
 Resistance to innovation is a common barrier to creating a culture of innovation in the workplace. In this chapter, we will focus on developing strategies for overcoming resistance to innovation and fostering a more dynamic and innovative workplace.
 

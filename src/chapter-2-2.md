@@ -1,5 +1,3 @@
-Understanding the Science Behind Innovation
-========================================================================================
 
 Defining a culture of innovation requires an understanding of the science behind innovation. In this chapter, we will explore the key concepts and principles that underpin innovation in the workplace.
 

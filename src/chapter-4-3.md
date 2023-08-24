@@ -1,5 +1,3 @@
-Analyzing the Impact of Innovation on Individuals and Organizations
-=====================================================================================================================
 
 Understanding the power of innovation is essential for individuals and organizations that want to create a culture of innovation in the workplace. In this chapter, we will focus on analyzing the impact of innovation on individuals and organizations.
 

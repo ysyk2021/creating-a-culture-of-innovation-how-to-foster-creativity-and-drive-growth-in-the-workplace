@@ -1,6 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
+- [Chapter 1: Introduction](README.md)
   - [Understanding the Importance of a Culture of Innovation](chapter-1-1.md)
   - [Common Misconceptions About Innovation](chapter-1-2.md)
   - [Benefits of Fostering Creativity and Driving Growth](chapter-1-3.md)

@@ -1,5 +1,4 @@
-Chapter 6: Setting Realistic Goals and Objectives
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to create a culture of innovation, setting realistic goals and objectives is a crucial step. Without clear direction and measurable targets, your innovation efforts may lack focus and purpose. This chapter explores the importance of setting goals and provides strategies for defining objectives that guide your organization towards a more innovative future.
 

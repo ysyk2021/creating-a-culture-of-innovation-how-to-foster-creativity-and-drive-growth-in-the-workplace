@@ -1,5 +1,4 @@
-Chapter 7: Identifying Common Sources of Resistance to Innovation
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Innovation is often met with resistance, and understanding the sources of this resistance is essential for successfully creating a culture of innovation within your organization. In this chapter, we will explore the common reasons behind resistance to innovation and provide insights into how to address these challenges effectively.
 

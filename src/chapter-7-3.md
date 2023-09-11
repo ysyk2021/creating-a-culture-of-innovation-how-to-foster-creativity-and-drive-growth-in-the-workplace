@@ -1,5 +1,4 @@
-Chapter 5: Addressing Fear and Uncertainty
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to creating a culture of innovation, one of the most significant roadblocks that organizations often encounter is fear and uncertainty. These emotions can stifle creativity, hinder progress, and prevent employees from taking risks. In this chapter, we will explore strategies and insights on how to address and overcome fear and uncertainty within your workplace to foster a culture of innovation.
 

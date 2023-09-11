@@ -1,5 +1,4 @@
-Chapter 21: Adapting to Changes in the Workplace
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the vital importance of adapting to changes in the workplace within the context of creating a culture of innovation. In today's rapidly evolving business landscape, the ability to embrace change is fundamental to fostering creativity and driving growth.
 

@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Cultivating an Innovative Mindset
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a variety of techniques and strategies to help individuals and organizations cultivate an innovative mindset. An innovative mindset is the foundation of a culture of innovation, and it can be nurtured and developed through deliberate efforts.
 

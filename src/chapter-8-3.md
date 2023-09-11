@@ -1,5 +1,4 @@
-Chapter 28: Fostering Knowledge Sharing and Mentorship
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of fostering knowledge sharing and mentorship within the context of creating a culture of innovation. A workplace that prioritizes the transfer of knowledge and the cultivation of mentorship relationships can accelerate the development of creative ideas and drive growth.
 

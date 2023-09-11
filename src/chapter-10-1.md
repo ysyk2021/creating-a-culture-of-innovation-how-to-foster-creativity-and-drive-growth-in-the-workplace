@@ -1,5 +1,4 @@
-Chapter 17: Tracking Progress and Measuring Results
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of tracking progress and measuring results in the context of creating a culture of innovation. To foster creativity and drive growth in the workplace, it's essential to establish effective methods for evaluating the impact of innovation initiatives and strategies.
 

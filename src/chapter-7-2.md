@@ -1,5 +1,4 @@
-Chapter 13: Developing Strategies for Overcoming Resistance
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Innovation often faces resistance, but with the right strategies in place, you can effectively navigate and overcome these challenges. In this chapter, we will delve into practical approaches for identifying and addressing resistance to innovation within your organization.
 

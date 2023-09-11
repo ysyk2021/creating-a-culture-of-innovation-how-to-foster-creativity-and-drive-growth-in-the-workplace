@@ -1,5 +1,4 @@
-Chapter 7: Utilizing Feedback and Coaching
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the pivotal role that feedback and coaching play in cultivating a culture of innovation within your organization. Effective feedback mechanisms and coaching strategies are essential tools for nurturing creativity and driving growth.
 

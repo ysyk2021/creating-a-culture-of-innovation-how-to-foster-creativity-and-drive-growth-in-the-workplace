@@ -1,5 +1,4 @@
-Chapter 1: Overview of a Culture of Innovation
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Innovation is not a one-time event or a solitary endeavor; it is a culture that permeates every aspect of an organization. In this chapter, we will provide a comprehensive overview of what a culture of innovation entails, why it is essential, and the foundational principles that underpin it.
 

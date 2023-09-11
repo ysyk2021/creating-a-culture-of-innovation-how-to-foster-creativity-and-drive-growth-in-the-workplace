@@ -1,5 +1,4 @@
-Chapter 7: Fostering a Growth Mindset
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the concept of fostering a growth mindset to create a culture of innovation in the workplace. A growth mindset is the foundation upon which creative thinking, resilience, and continuous improvement are built.
 

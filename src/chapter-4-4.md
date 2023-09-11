@@ -1,5 +1,4 @@
-Chapter 5: Addressing Limiting Beliefs
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to create a culture of innovation, one of the most significant barriers to overcome is the presence of limiting beliefs. In this chapter, we will explore the impact of these beliefs on innovation and provide strategies for identifying and addressing them within your organization.
 

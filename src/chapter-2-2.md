@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Science Behind Innovation
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Innovation is not a mystical process but a result of systematic and well-understood principles. In this chapter, we will delve into the science behind innovation, exploring the cognitive and psychological factors that drive creative thinking and problem-solving.
 

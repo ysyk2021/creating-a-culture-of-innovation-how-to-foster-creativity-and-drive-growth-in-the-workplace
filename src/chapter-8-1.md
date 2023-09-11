@@ -1,5 +1,4 @@
-Chapter 29: Encouraging Proactive Innovation Across the Organization
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of encouraging proactive innovation across the entire organization as a fundamental element of creating a culture of innovation. Proactive innovation involves empowering employees at all levels to actively seek and drive innovation, leading to sustained creativity and growth.
 

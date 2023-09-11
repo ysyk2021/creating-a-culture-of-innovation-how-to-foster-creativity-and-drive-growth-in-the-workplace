@@ -1,5 +1,4 @@
-Chapter 25: Fostering Accessibility and Inclusivity
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the vital importance of fostering accessibility and inclusivity within the context of creating a culture of innovation. A workplace that values diversity and inclusivity is better positioned to harness the full spectrum of human perspectives and talents, which are essential for driving creativity and growth.
 

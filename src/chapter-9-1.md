@@ -1,5 +1,4 @@
-Chapter 19: Identifying Innovation Technologies and Resources
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the process of identifying innovation technologies and resources to support the creation of a culture of innovation in the workplace. Embracing cutting-edge tools and resources is crucial for fostering creativity and driving growth in today's rapidly evolving business landscape.
 

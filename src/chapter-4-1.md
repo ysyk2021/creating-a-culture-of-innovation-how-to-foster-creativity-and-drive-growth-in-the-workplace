@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Focusing on Innovation
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the numerous benefits that stem from prioritizing innovation within your organization. Understanding these advantages is crucial for building a compelling case for fostering a culture of innovation.
 

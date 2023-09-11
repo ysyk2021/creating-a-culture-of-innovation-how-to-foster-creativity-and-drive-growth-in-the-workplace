@@ -1,5 +1,4 @@
-Chapter 3: Assessing Your Personal Approach to Innovation
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how to assess your personal approach to innovation. Understanding your unique innovation style and mindset is crucial for fostering creativity and driving growth in the workplace. By gaining insight into your approach, you can tailor your efforts to become a more effective innovator and contribute to building a culture of innovation within your organization.
 

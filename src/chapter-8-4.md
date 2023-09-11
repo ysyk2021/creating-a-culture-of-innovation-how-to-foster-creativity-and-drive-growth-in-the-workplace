@@ -1,5 +1,4 @@
-Chapter 27: Celebrating Innovative Achievements
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of celebrating innovative achievements within the context of creating a culture of innovation. Recognizing and celebrating innovative efforts and successes is a powerful way to motivate teams, reinforce the importance of creativity, and drive growth in the workplace.
 

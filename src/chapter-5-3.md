@@ -1,5 +1,4 @@
-Chapter 5: Communicating Clearly and Effectively
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of clear and effective communication in creating a culture of innovation in the workplace. Effective communication is the linchpin that enables the free flow of ideas, fosters collaboration, and drives growth through innovation.
 

@@ -1,5 +1,4 @@
-Chapter 8: Utilizing Positive Self-Talk and Visualization
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to create a culture of innovation, the power of the mind plays a significant role. Positive self-talk and visualization are tools that can help individuals and teams harness their creative potential and drive innovation. This chapter explores how adopting a positive mindset and utilizing visualization techniques can fuel creativity and growth in the workplace.
 

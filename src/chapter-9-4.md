@@ -1,5 +1,4 @@
-Chapter 15: Avoiding Information Overload
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for avoiding information overload in the quest to create a culture of innovation. In our information-rich world, it's crucial to strike a balance between staying informed and preventing overwhelming amounts of data from stifling creativity and productivity.
 

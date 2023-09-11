@@ -1,5 +1,4 @@
-Chapter 3: Identifying Opportunities for Innovation in the Workplace
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest to create a culture of innovation, one of the foundational steps is identifying opportunities for innovation within your organization. This chapter delves into strategies and approaches to uncovering and capitalizing on potential areas for innovation in the workplace.
 

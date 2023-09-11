@@ -1,5 +1,4 @@
-Chapter 11: Developing Empathy and Compassion Through Innovation
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Innovation is not just about products and processes; it's also about fostering a culture of empathy and compassion within your organization. In this chapter, we will explore how innovation can be a powerful tool for developing empathy and compassion, both internally among team members and externally toward customers and stakeholders.
 
